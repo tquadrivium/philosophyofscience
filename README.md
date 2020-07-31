@@ -92,7 +92,7 @@ Lee McIntyre 是波士顿大学科学哲学与历史中心的研究员。他是 
 
 ### 5.参与方法
 
-将基本情况（如学校、专业方向、年级）和加入读书会的理由（100字以内）发送到 [haozhan1993@gmail.com](mailto:haozhan1993@gmail.com) ，邮件题目为：姓名+《科技哲学》读书会
+将基本情况（如学校、专业方向、年级）和加入读书会的理由（100字以内）发送到 [readingclub@sanyisishu.com](mailto:readingclub@sanyisishu.com) ，邮件题目为：姓名+《科技哲学》读书会
 
 我们会尽可能快的进行答复。
 
